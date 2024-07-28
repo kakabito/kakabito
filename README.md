@@ -1,2 +1,2 @@
 ### [birb](rentry.co/agaporni)
-<img alt="" src=https://gcdnb.pbrd.co/images/4M1vERu776tB.webp?o=1>
+<img alt="" src=https://i.pinimg.com/736x/47/e1/b0/47e1b06c26c9237d1d67d8ec234bdbb0.jpg>
