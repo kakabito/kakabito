@@ -1,4 +1,4 @@
 ### [rentry](https://rentry.co/rafag)
-<img alt="my oc mitch" src=https://files.catbox.moe/1w9j3v.webp>
+<img alt="" src=https://i.pinimg.com/control/736x/a1/49/de/a149dedd8ff04ce831733d86afdb9f2f.jpg>
 
 >
