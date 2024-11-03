@@ -4,6 +4,6 @@
 </div>
 
 <div align="center">
-   <a href="https://rentry.co/rafag">rentry.co / rafag</a>
+   <a href="https://rentry.co/rfgz">rentry.co / rfgz</a>
 </div>
 
