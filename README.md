@@ -1,6 +1,9 @@
+<div align="center">
+   art by kelcair
+</div>
 
 <div align="center">
-    <img src="https://files.catbox.moe/bx2bcb.webp" alt="Description of the image">
+    <img src="https://files.catbox.moe/cvugpt.png" alt="Description of the image">
 </div>
 
 <div align="center">
