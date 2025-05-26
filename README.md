@@ -1,9 +1,9 @@
 <div align="center">
-   art by @solo_m0n2002
+   art by @nmmonnm
 </div>
 
 <div align="center">
-    <img src="https://files.catbox.moe/lihqih.png" alt="Description of the image">
+    <img src="https://files.catbox.moe/tip1df.png" alt="Description of the image">
 </div>
 
 <div align="center">
